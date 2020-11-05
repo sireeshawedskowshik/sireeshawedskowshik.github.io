@@ -1,2 +1,2 @@
 # sireeshawedskowshik.github.io
-Our wedding website
+Our wedding website. Thanks for visiting
